@@ -4,3 +4,5 @@
 hi,
 
 my username is tomcalob
+sjvgbsjdvbgsdkjtbskgkjhtgbsdkjvb jtgdkjfthsdg ktv
+Poznámka: trochu to potřebovalo doplnit!!! !%#
